@@ -7,7 +7,7 @@
 - [九游娱乐官网](https://jiuyoucn.com) - 访问我们的官方网站，了解最新的体育、电竞赛事、真人娱乐和优惠活动。
 - [九游娱乐APP](https://jyyl.pages.dev) - 下载我们的九游娱乐全站版APP，随时随地畅玩所有场馆游戏。
 - [九游棋牌APP](https://jyqp.pages.dev) - 体验我们专为棋牌爱好者打造的九游棋牌APP，体验更多精彩内容下载APP。
-- [九游电子APP](https://jydz.pages.dev) - 体验我们专为老虎机玩家打造的九游电子APP，体验更多精彩内容下载APP。
+- [九游电子APP](https://jydz.pages.dev) - 体验我们专为老虎机和捕鱼玩家打造的九游电子APP，体验更多精彩内容下载APP。
 
 ## 注册与下载
 
