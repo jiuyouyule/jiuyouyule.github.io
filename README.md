@@ -29,5 +29,6 @@
 有任何问题或需要帮助？请随时联系我们的客服团队。我们24/7为您提供支持。
 
 - 在网站上使用在线客服功能与我们取得联系。
+- [九游YouTube频道](https://www.youtube.com/channel/UCR5_WZSvalENeivpbR12YFw)
 
 感谢您选择九游娱乐，愿您在我们的平台上游戏愉快！
