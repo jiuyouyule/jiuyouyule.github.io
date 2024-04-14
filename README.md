@@ -1,6 +1,6 @@
 # 九游娱乐 - jiuyoucn.com 官方网址
 
-欢迎访问九游娱乐网址入口线路！九游APP集合了市场上最热门的游戏种类，提供丰富多样的选择，绝对能满足您的游戏需求！
+欢迎访问九游娱乐网址入口线路[jiuyoucn.net](https://jiuyoucn.net)！九游APP集合了市场上最热门的游戏种类，提供丰富多样的选择，绝对能满足您的游戏需求！
 
 [![九游娱乐APP](apple-touch-icon.png)](https://jiuyou.la)
 
@@ -29,6 +29,7 @@
 有任何问题或需要帮助？请随时联系我们的客服团队。我们24/7为您提供支持。
 
 - 在网站上使用在线客服功能与我们取得联系。
+- [九游体育](https://jiuyou.nl)
 - [九游YouTube频道](https://www.youtube.com/channel/UCR5_WZSvalENeivpbR12YFw)
 
 感谢您选择九游娱乐，愿您在我们的平台上游戏愉快！
