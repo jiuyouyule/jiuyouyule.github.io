@@ -6,7 +6,7 @@
 
 ## 网址入口
 
-- [九游娱乐官网](https://jiuyoucn.com) - 访问我们的官方网站，了解最新的体育、电竞赛事、真人娱乐和优惠活动。
+- [九游娱乐官网](https://jiuyoucn.com) - 访问九游娱乐的官方网站，了解最新的体育、电竞赛事、真人娱乐和优惠活动。
 - [九游娱乐APP](https://jyyl.pages.dev) - 下载我们的九游娱乐全站版APP，随时随地畅玩所有场馆游戏。
 - [九游棋牌APP](https://jyqp.pages.dev) - 体验我们专为棋牌爱好者打造的九游棋牌APP，体验更多精彩内容下载APP。
 - [九游电子APP](https://jydz.pages.dev) - 体验我们专为老虎机和捕鱼玩家打造的九游电子APP，体验更多精彩内容下载APP。
@@ -29,7 +29,8 @@
 有任何问题或需要帮助？请随时联系我们的客服团队。我们24/7为您提供支持。
 
 - 在网站上使用在线客服功能与我们取得联系。
-- [九游体育](https://jiuyou.nl)
+- [九游体育](https://jiuyoutiyu.web.app)
 - [九游YouTube频道](https://www.youtube.com/channel/UCR5_WZSvalENeivpbR12YFw)
+- About [九游娱乐](https://community.fabric.microsoft.com/t5/user/viewprofilepage/user-id/706305)
 
 感谢您选择九游娱乐，愿您在我们的平台上游戏愉快！
